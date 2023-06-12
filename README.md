@@ -1,1 +1,0 @@
-# praktikum_wb2
